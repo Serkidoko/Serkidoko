@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DucAnhDo
-- 👀 I’m interested in 
+- 👀 I’m interested in neurolink
 - 🌱 I’m currently learning artificial intelligence & Robotic
-- 📫 How to reach me kidoko2580@gmail.com
+- 📫 How to reach me ducanhdo2580@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: NO
